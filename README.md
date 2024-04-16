@@ -3,3 +3,5 @@
 -Menjadi Seorang Programmer
 -Menjadi Pribadi yang lebih baik
 -Hafalan Al-Qur'an
+-Ngecamp
+-Naik kepuncak Gunung
